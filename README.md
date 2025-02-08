@@ -1,3 +1,3 @@
-# SE-LAb-Assignment
+# SE-Lab-Assignment
 
 Please give my Full marks UwU
